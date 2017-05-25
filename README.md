@@ -4,4 +4,5 @@ hoho
 hehe
 What the Fuck?
 This is dev.
-I'm a old member.
+U R old member.
+I'm a new member.
