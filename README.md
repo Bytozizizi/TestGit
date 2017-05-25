@@ -2,4 +2,4 @@
 new test
 hoho
 hehe
-What the Fuck?
+Have a nice day.
